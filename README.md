@@ -1,3 +1,3 @@
 Link a la apk para ios:
 
-https://drive.google.com/file/d/1nxw1f5MiWxAGwibzQ9WMObtgWZXfCCqz/view?usp=share_link
+https://drive.google.com/file/d/1EQxGbqD-5zrB2YRTATb43I4Q5T6uoy37/view?usp=share_link
